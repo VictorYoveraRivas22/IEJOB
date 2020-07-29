@@ -1,2 +1,2 @@
 # IEJOB
-Pagina web muestra de Jose Olaya 
+Pagina web muestra de I.E Jose Olaya Balandra  
